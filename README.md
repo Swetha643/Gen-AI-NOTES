@@ -1,0 +1,2 @@
+# Gen-AI-NOTES
+GEN AI
